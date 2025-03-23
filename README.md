@@ -20,12 +20,10 @@ I’m a passionate graphic designer with 2 years of experience in creating visua
 - Any interesting design challenges or opportunities to improve user experiences
 
 ## 📫 How to reach me
-- Email: heli.depani@example.com
-- LinkedIn: [heli-depani](https://www.linkedin.com/in/heli-depani)
-- Twitter: [@heli_depani](https://twitter.com/heli_depani)
+- Email: heli.depani@gmail.com
 
 ## 😄 Pronouns: 
-- He/Him
+- She/Her
 
 ## ⚡ Fun fact: 
 - I love watching movies 🎬 and playing games 🎮 in my free time!
